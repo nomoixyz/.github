@@ -1,3 +1,3 @@
-[nomoi.xyz](nomoi.xyz)
+[nomoi.xyz](https://nomoi.xyz)
 
 web3 hacker collective
